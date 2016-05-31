@@ -2,4 +2,4 @@
 
 -v2
 
-Productora audiovisual especializada en fotografía y video para sociales
+Productora audiovisual especializada en fotografía y video para eventos sociales
